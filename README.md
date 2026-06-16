@@ -1,1 +1,0 @@
-# Evacuaci-n-de-corte-1-
